@@ -9,4 +9,4 @@
 
 🚀 I'm excited to learn, contribute, and collaborate with the vibrant GitHub community. Let's dive into the virtual realm together!
 
-📫 You can reach me via email at [your-email@example.com].
+📫 You can reach me via email at lmx1840615582@mails.ccnu.edu.cn.
